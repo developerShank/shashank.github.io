@@ -1,5 +1,4 @@
-# shashank.github.io
-Privacy Policy for Bank Interest Rate
+# Privacy Policy for Bank Interest Rate
 
 Privacy Policy
 Last updated: November 20, 2022
